@@ -1,0 +1,1 @@
+# VNIT-M.Tech.-in-Applied-AI-Intellipaat
